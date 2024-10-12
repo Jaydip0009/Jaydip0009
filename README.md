@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Jaydip0009
 
-![River](https://github.com/user-attachments/assets/edb4d77a-6036-4dc8-8822-1a08e3248ef5)
+![Ocean Discord Banner Gif](https://github.com/user-attachments/assets/740b411b-d06e-492f-aa19-4748bd79783d)
