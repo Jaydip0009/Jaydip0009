@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Jaydip0009
 
-![a worrior](https://github.com/user-attachments/assets/c0c826c0-0258-4896-b7c5-8702b01e54d5)
+![River](https://github.com/user-attachments/assets/70fdbdda-de90-4082-9b43-31bb091420d8)
